@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analyst 
 - 🌱 I’m currently learning data analytics
 - 💞️ I’m looking to collaborate on finishing this course
-- 📫 How to reach me skoonhygienea@gmail.com
+- 📫 How to reach me skoonhygiene@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: workaholic 
 
